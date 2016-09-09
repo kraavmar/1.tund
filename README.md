@@ -1,4 +1,4 @@
 kass
 
-Tere!
+Tere kass!
 
